@@ -1,1 +1,1 @@
-# -
+# First and main days
